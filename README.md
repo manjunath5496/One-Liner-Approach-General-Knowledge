@@ -1,0 +1,1 @@
+# One-Liner-Approach-General-Knowledge
