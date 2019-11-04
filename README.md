@@ -1,1 +1,4 @@
-# One-Liner-Approach-General-Knowledge
+<h2>One Liner Approach General Knowledge </h2>
+
+<p>The <strong>Civil Services Examination</strong> (CSE) is a nationwide competitive examination in India conducted by the <strong>Union Public Service Commission</strong> for recruitment to various Civil Services of the Government of India, including the Indian Administrative Service (IAS), Indian Foreign Service (IFS), and Indian Police Service (IPS). This being one of the most competitive exams needs through preparation.&nbsp;<strong>One Liner Approach General Knowledge</strong> is a comprehensive book for entrance exam preparations. The book comprises of list of governors and chief ministers since independence for the students. This book is essential for candidates applying for entrance and other competitive exams. The book is almost like an encyclopedia, taking into account the number of topics covered. The information is provided in an organized manner.</p>
+
